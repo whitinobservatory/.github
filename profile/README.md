@@ -2,7 +2,7 @@
 
 🙋‍♀️ Welcome to Whitin Observatory at Wellesley College!
 
-🌈 If you would like to learn more, contact [Jonathan Kemp](https://sites.google.com/wellesley.edu/jk116) or [Lamiya Mowla](https://www.lamiyamowla.com/)
+🌈 If you would like to learn more, contact [Jonathan Kemp](https://sites.google.com/wellesley.edu/jk116) or [Lamiya Mowla](https://www.mowlaastrogroup.com/)
 
 <!--
 
